@@ -1,1 +1,0 @@
-# nienawidze_issues
